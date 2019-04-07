@@ -38,7 +38,7 @@ Intelligent people are distracted by disturbing noises. Good dancers have to wea
 What Is Great About It: Technology is always supposed to make us better. But in this case, we see that it can be used to disable our talents. Moreover, the writer shows us how the mindless use of a single value like equality can create more suffering for everyone. 
 
 
-“Rikki-Tikki-Tavi” by Rudyard Kipling 
+“Rikki-Tikki-Tavi” by Rudyard Kipling
 Reading Level: Fairly Easy 
 “Rikki-Tikki-Tavi” is about a Mongoose who regularly visits a family in India. The family feeds him and lets him explore their house, but they worry that he might bite their son, Teddy. One day a snake is about to attack him when the Mongoose kills it. Eventually, QANHN, he becomes a part of the family forever. 
 What Is Great About It: This is a simple story about humans and animals living together as friends. It is old, but the language is fairly easy to understand. It reminds us that animals can also experience feelings of love and, like humans, they will also protect the ones they love. 
