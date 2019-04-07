@@ -4,13 +4,22 @@ https://www.baidu.com
 https://translate.google.com
 
 
+English
+https://sightwords.com
+http://www.andykrieger.com
+https://www.rong-chang.com
+https://app.grammarly.com
+
+
 Tools
 https://www.tradingview.com/chart/pGGXO3hY
 https://www.tradingview.com/chart/xdvvNCJG
 https://www.chuangkit.com
+https://www.photopea.com
 https://tinypng.com
 https://www.lycamobile.us
-https://secure.shadowsocks.ch
+http://www.wmzcn.com
+http://us.2kz.net
 
 
 Questions
@@ -27,8 +36,30 @@ https://waveanalysis.net
 https://daytradetowin.com
 
 
-English
-https://sightwords.com
-http://www.andykrieger.com
-https://www.rong-chang.com
-https://app.grammarly.com
+News
+https://www.npr.org
+https://www.reuters.com
+https://www.zaobao.com.sg
+https://www.thepaper.cn
+https://www.usatoday.com
+
+
+Tech
+https://www.iplaysoft.com
+https://www.williamlong.info
+https://www.huxiu.com
+https://www.36kr.com
+https://sspai.com
+http://www.dgtle.com
+http://www.ruanyifeng.com
+https://techcrunch.com
+https://www.businessinsider.com
+
+
+Free Stcoks
+https://pixabay.com
+https://videos.pexels.com
+https://unsplash.com
+https://www.stockio.com
+
+This Page is just for some urls that will be useful for anyone. Thanks for sharing~
