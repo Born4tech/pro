@@ -36,6 +36,9 @@ https://dailypriceaction.com
 https://waveanalysis.net
 https://daytradetowin.com
 
+Rss
+https://feedly.com
+http://reederapp.com
 
 News
 https://www.npr.org
@@ -62,5 +65,6 @@ https://pixabay.com
 https://videos.pexels.com
 https://unsplash.com
 https://www.stockio.com
+
 
 This Page is just for some urls that will be useful for anyone. Thanks for sharing~
