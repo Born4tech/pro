@@ -28,6 +28,9 @@ http://t.pp.cc
 https://www.ytmonster.net
 https://www.submenow.com
 
+https://subhd.com
+http://www.yikedy.co
+
 Tools
 https://www.tradingview.com/chart/pGGXO3hY
 https://www.tradingview.com/chart/xdvvNCJG
